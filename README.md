@@ -1,2 +1,2 @@
-# Reda-o-
+# Redacao
 https://redacao.mmrcoss.tech
