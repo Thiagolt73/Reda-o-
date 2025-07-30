@@ -1,2 +1,2 @@
 # Redacao
-https://redacao.mmrcoss.tech
+https://redacao.cupiditys.lol/
